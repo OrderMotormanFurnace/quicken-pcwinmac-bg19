@@ -1,4 +1,4 @@
-# 
+# Automático Quicken complementos para Mac OS | Instantáneo Quicken complementos para PC Windows. Con llenado de formularios y cálculos de dietas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
